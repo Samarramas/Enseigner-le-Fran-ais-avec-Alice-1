@@ -1,1 +1,1 @@
-# Enseigner-le-Fran-ais-avec-Alice-1
+# Enseigner-le-Français-avec-Alice-1
